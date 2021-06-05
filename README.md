@@ -9,3 +9,4 @@ In 1812, the Louisiana Territory was renamed the Missouri Territory, to avoid co
 The U.S. House of Representatives approved, 79-49, a declaration of war against Britain.
 
 In 1912, Massachusetts became the first state to adopt a minimum wage law.
+In 1939, the German ocean liner MS St. Louis, carrying more than 900 Jewish refugees from Germany, was turned away from the Florida coast by U.S. officials.

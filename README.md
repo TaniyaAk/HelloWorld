@@ -13,7 +13,7 @@ In 1939, the German ocean liner MS St. Louis, carrying more than 900 Jewish refu
 In 1940, during World War II, the Allied military evacuation of some 338,000 troops from Dunkirk, France, ended. British Prime Minister Winston Churchill declared: “We shall fight on the beaches, we shall fight on the landing grounds, we shall fight in the fields and in the streets, we shall fight in the hills; we shall never surrender.”
 
 
-
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 MONDAY JUNE 06/07/2021
 Microsoft Corp. Stock rises Monday, outperfomrs market...
 
